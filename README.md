@@ -1,2 +1,2 @@
 # fi-s-
-in the Balearics
+in Spain (e.g., the Balearics)
